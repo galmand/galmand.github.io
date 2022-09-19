@@ -1,2 +1,0 @@
-# galmand.github.io
- 
